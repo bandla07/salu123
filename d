@@ -1,3 +1,3 @@
 hi friends how are you doing
-god bless you all
+go you all
 how are you all
